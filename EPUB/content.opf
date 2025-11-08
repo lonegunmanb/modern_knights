@@ -1,0 +1,126 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<package version="3.0" xmlns="http://www.idpf.org/2007/opf" xml:lang="en-US" unique-identifier="epub-id-1" prefix="ibooks: http://vocabulary.itunes.apple.com/rdf/ibooks/vocabulary-extensions-1.0/">
+  <metadata xmlns:dc="http://purl.org/dc/elements/1.1/" xmlns:opf="http://www.idpf.org/2007/opf">
+    <dc:identifier id="epub-id-1">urn:uuid:db37f40a-7104-4443-92a9-80531a60f8bd</dc:identifier>
+    <dc:title id="epub-title-1">Chevaliers d&#39;aujourd&#39;hui</dc:title>
+    <dc:date id="epub-date">2024-08-27T06:50:51Z</dc:date>
+    <dc:language>en-US</dc:language>
+    <dc:creator id="epub-creator-1">André Van Bosbeke</dc:creator>
+    <meta refines="#epub-creator-1" property="role" scheme="marc:relators">aut</meta>
+    <meta property="dcterms:modified">2024-08-27T06:50:51Z</meta>
+    <meta property="schema:accessMode">textual</meta>
+    <meta property="schema:accessModeSufficient">textual</meta>
+    <meta property="schema:accessibilityFeature">alternativeText</meta>
+    <meta property="schema:accessibilityFeature">readingOrder</meta>
+    <meta property="schema:accessibilityFeature">structuralNavigation</meta>
+    <meta property="schema:accessibilityFeature">tableOfContents</meta>
+    <meta property="schema:accessibilityHazard">none</meta>
+  </metadata>
+  <manifest>
+    <item id="ncx" href="toc.ncx" media-type="application/x-dtbncx+xml" />
+    <item id="nav" href="nav.xhtml" media-type="application/xhtml+xml" properties="nav" />
+    <item id="stylesheet1" href="styles/stylesheet1.css" media-type="text/css" />
+    <item id="title_page_xhtml" href="text/title_page.xhtml" media-type="application/xhtml+xml" />
+    <item id="ch001_xhtml" href="text/ch001.xhtml" media-type="application/xhtml+xml" />
+    <item id="file92_jpg" href="media/file92.jpg" media-type="image/jpeg" />
+    <item id="file91_jpg" href="media/file91.jpg" media-type="image/jpeg" />
+    <item id="file90_jpg" href="media/file90.jpg" media-type="image/jpeg" />
+    <item id="file89_jpg" href="media/file89.jpg" media-type="image/jpeg" />
+    <item id="file88_jpg" href="media/file88.jpg" media-type="image/jpeg" />
+    <item id="file87_jpg" href="media/file87.jpg" media-type="image/jpeg" />
+    <item id="file86_jpg" href="media/file86.jpg" media-type="image/jpeg" />
+    <item id="file85_jpg" href="media/file85.jpg" media-type="image/jpeg" />
+    <item id="file84_jpg" href="media/file84.jpg" media-type="image/jpeg" />
+    <item id="file83_jpg" href="media/file83.jpg" media-type="image/jpeg" />
+    <item id="file82_jpg" href="media/file82.jpg" media-type="image/jpeg" />
+    <item id="file81_jpg" href="media/file81.jpg" media-type="image/jpeg" />
+    <item id="file80_jpg" href="media/file80.jpg" media-type="image/jpeg" />
+    <item id="file79_jpg" href="media/file79.jpg" media-type="image/jpeg" />
+    <item id="file78_jpg" href="media/file78.jpg" media-type="image/jpeg" />
+    <item id="file77_jpg" href="media/file77.jpg" media-type="image/jpeg" />
+    <item id="file76_jpg" href="media/file76.jpg" media-type="image/jpeg" />
+    <item id="file75_jpg" href="media/file75.jpg" media-type="image/jpeg" />
+    <item id="file74_jpg" href="media/file74.jpg" media-type="image/jpeg" />
+    <item id="file73_png" href="media/file73.png" media-type="image/png" />
+    <item id="file72_jpg" href="media/file72.jpg" media-type="image/jpeg" />
+    <item id="file71_jpg" href="media/file71.jpg" media-type="image/jpeg" />
+    <item id="file70_jpg" href="media/file70.jpg" media-type="image/jpeg" />
+    <item id="file69_jpg" href="media/file69.jpg" media-type="image/jpeg" />
+    <item id="file68_jpg" href="media/file68.jpg" media-type="image/jpeg" />
+    <item id="file67_jpg" href="media/file67.jpg" media-type="image/jpeg" />
+    <item id="file66_jpg" href="media/file66.jpg" media-type="image/jpeg" />
+    <item id="file65_jpg" href="media/file65.jpg" media-type="image/jpeg" />
+    <item id="file64_jpg" href="media/file64.jpg" media-type="image/jpeg" />
+    <item id="file63_jpg" href="media/file63.jpg" media-type="image/jpeg" />
+    <item id="file62_jpg" href="media/file62.jpg" media-type="image/jpeg" />
+    <item id="file61_jpg" href="media/file61.jpg" media-type="image/jpeg" />
+    <item id="file60_jpg" href="media/file60.jpg" media-type="image/jpeg" />
+    <item id="file59_jpg" href="media/file59.jpg" media-type="image/jpeg" />
+    <item id="file58_png" href="media/file58.png" media-type="image/png" />
+    <item id="file57_jpg" href="media/file57.jpg" media-type="image/jpeg" />
+    <item id="file56_png" href="media/file56.png" media-type="image/png" />
+    <item id="file55_png" href="media/file55.png" media-type="image/png" />
+    <item id="file54_png" href="media/file54.png" media-type="image/png" />
+    <item id="file53_jpg" href="media/file53.jpg" media-type="image/jpeg" />
+    <item id="file52_jpg" href="media/file52.jpg" media-type="image/jpeg" />
+    <item id="file51_jpg" href="media/file51.jpg" media-type="image/jpeg" />
+    <item id="file50_jpg" href="media/file50.jpg" media-type="image/jpeg" />
+    <item id="file49_png" href="media/file49.png" media-type="image/png" />
+    <item id="file48_jpg" href="media/file48.jpg" media-type="image/jpeg" />
+    <item id="file47_png" href="media/file47.png" media-type="image/png" />
+    <item id="file46_png" href="media/file46.png" media-type="image/png" />
+    <item id="file45_jpg" href="media/file45.jpg" media-type="image/jpeg" />
+    <item id="file44_png" href="media/file44.png" media-type="image/png" />
+    <item id="file43_jpg" href="media/file43.jpg" media-type="image/jpeg" />
+    <item id="file42_jpg" href="media/file42.jpg" media-type="image/jpeg" />
+    <item id="file41_png" href="media/file41.png" media-type="image/png" />
+    <item id="file40_png" href="media/file40.png" media-type="image/png" />
+    <item id="file39_png" href="media/file39.png" media-type="image/png" />
+    <item id="file38_jpg" href="media/file38.jpg" media-type="image/jpeg" />
+    <item id="file37_jpg" href="media/file37.jpg" media-type="image/jpeg" />
+    <item id="file36_png" href="media/file36.png" media-type="image/png" />
+    <item id="file35_png" href="media/file35.png" media-type="image/png" />
+    <item id="file34_jpg" href="media/file34.jpg" media-type="image/jpeg" />
+    <item id="file33_jpg" href="media/file33.jpg" media-type="image/jpeg" />
+    <item id="file32_png" href="media/file32.png" media-type="image/png" />
+    <item id="file31_jpg" href="media/file31.jpg" media-type="image/jpeg" />
+    <item id="file30_jpg" href="media/file30.jpg" media-type="image/jpeg" />
+    <item id="file29_jpg" href="media/file29.jpg" media-type="image/jpeg" />
+    <item id="file28_png" href="media/file28.png" media-type="image/png" />
+    <item id="file27_png" href="media/file27.png" media-type="image/png" />
+    <item id="file26_jpg" href="media/file26.jpg" media-type="image/jpeg" />
+    <item id="file25_png" href="media/file25.png" media-type="image/png" />
+    <item id="file24_jpg" href="media/file24.jpg" media-type="image/jpeg" />
+    <item id="file23_png" href="media/file23.png" media-type="image/png" />
+    <item id="file22_png" href="media/file22.png" media-type="image/png" />
+    <item id="file21_png" href="media/file21.png" media-type="image/png" />
+    <item id="file20_jpg" href="media/file20.jpg" media-type="image/jpeg" />
+    <item id="file19_png" href="media/file19.png" media-type="image/png" />
+    <item id="file18_png" href="media/file18.png" media-type="image/png" />
+    <item id="file17_png" href="media/file17.png" media-type="image/png" />
+    <item id="file16_png" href="media/file16.png" media-type="image/png" />
+    <item id="file15_png" href="media/file15.png" media-type="image/png" />
+    <item id="file14_png" href="media/file14.png" media-type="image/png" />
+    <item id="file13_png" href="media/file13.png" media-type="image/png" />
+    <item id="file12_png" href="media/file12.png" media-type="image/png" />
+    <item id="file11_png" href="media/file11.png" media-type="image/png" />
+    <item id="file10_png" href="media/file10.png" media-type="image/png" />
+    <item id="file9_jpg" href="media/file9.jpg" media-type="image/jpeg" />
+    <item id="file8_jpg" href="media/file8.jpg" media-type="image/jpeg" />
+    <item id="file7_png" href="media/file7.png" media-type="image/png" />
+    <item id="file6_jpg" href="media/file6.jpg" media-type="image/jpeg" />
+    <item id="file5_jpg" href="media/file5.jpg" media-type="image/jpeg" />
+    <item id="file4_jpg" href="media/file4.jpg" media-type="image/jpeg" />
+    <item id="file3_jpg" href="media/file3.jpg" media-type="image/jpeg" />
+    <item id="file2_jpg" href="media/file2.jpg" media-type="image/jpeg" />
+    <item id="file1_png" href="media/file1.png" media-type="image/png" />
+    <item id="file0_jpg" href="media/file0.jpg" media-type="image/jpeg" />
+  </manifest>
+  <spine toc="ncx">
+    <itemref idref="title_page_xhtml" linear="yes" />
+    <itemref idref="ch001_xhtml" />
+  </spine>
+  <guide>
+    <reference type="toc" title="Chevaliers d&#39;aujourd&#39;hui" href="nav.xhtml" />
+  </guide>
+</package>
