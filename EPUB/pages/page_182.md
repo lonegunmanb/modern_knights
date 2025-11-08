@@ -1,0 +1,11 @@
+
+Certains ordres de chevaliers semblent vouloir se présenter comme la conscience d\'une nation. Si vous êtes sûr d\'avoir raison, de nombreux moyens sont justifiés. Qui a tué le président Kennedy ? Un fou ? Ou le meurtre avait-il un but politique ? Le jugement, peut-être. Un anticommunisme généralisé ? On dirait plutôt. Les Russes voudraient-ils provoquer de tels changements climatiques ? C\'est peu probable. Un théorème vaut l\'autre. D\'ailleurs, Kimsey n\'a-t-il pas prétendu que l\'une de ses tâches pour la CIA était d\'engager des assassins appropriés ? Il connaissait l\'environnement du tueur. Ça, c\'est certain. Dans le cadre décrit ci-dessus, les intérêts sont énormes. Cela signifie aussi que les méthodes pour atteindre un objectif deviennent plus difficiles\....
+
+Le fait que de tels scénarios soient centrés sur les structures d\'une chevalerie plutôt mystérieuse est effrayant, quelle que soit votre opinion. Il semble que l\'histoire récente du monde se déroule en partie derrière de telles organisations folkloriques, à première vue. Au Moyen Âge, l\'Ordre du Temple et l\'Ordre de Saint-Jean exerçaient un pouvoir énorme. Plus tard, les ordres des chevaliers dynastiques sont devenus plus importants. Quelque chose a changé ? Nous vivons dans un régime démocratique, dites-vous, l\'Ancien Régime n\'existe plus 9.
+
+Le quiz
+
+Et maintenant que nous parlons des services d\'information. Supposons que vous soyez un passionné de quizz. Cette fois-ci, le club de quiz veut choisir un sujet plutôt controversé. Après mûre réflexion, ce sera la CIA, la CIA ! Une tâche difficile\...\.... Mais comme la participation est plus importante que la victoire\.... Mais, pour ne pas prendre un chiffre trop fou, il vous faudra étudier un certain nombre d\'événements dans et autour du service de renseignement américain. Pour rappel, j\'ai déjà énuméré un certain nombre de noms et de faits. La liste couvre quelques personnalités et événements importants au sein de la CIA. Un bon départ est la moitié de la victoire. Et voilà, c\'est parti.
+
+Commençons par le général Reinhard Gehlen. Gehlen était le premier espion antisoviétique d\'Adolf Hitler et a rejoint la CIA après la guerre. Le service de renseignement encore jeune et inexpérimenté de l\'époque pourrait
+

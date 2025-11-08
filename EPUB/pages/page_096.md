@@ -1,0 +1,5 @@
+
+Ils sont parmi nous
+
+Nous en avons déjà parlé : l\'Ordre du Temple, autrefois si célèbre et si puissant, a, même après plus de 650 ans, suscité les fantasmes les plus fous. Les Rose-Croix considèrent les Chevaliers du Temple médiévaux comme les porteurs de la \" vérité \" occulte sur la vie et la mort. Certains vont même plus loin. Les mystérieux chevaliers du Prieuré de Sion voient les Templiers comme un maillon d\'une conspiration internationale séculaire qui, dans un avenir très proche, aura une issue dramatique. En outre, de nombreuses organisations revendiquent le spirituel et le\.... ou être les successeurs légaux de l\'Ordre du Temple, que l\'on croyait mort en 1312. Nous avons déjà parlé de l\'Origas\'Ordre Rénové du Tempie\', de l\'Ordre des Chevaliers du Saint-Temple\' de Carpenet, et de l\'Ordre Souverain et Militaire du Temple de Jérusalem\' de Sousa Fontes et Bodart. Tous défendent la même proposition audacieuse : racheter l\'Ordre du Temple par l\'Esprit Saint les enseignements secrets et occultes de la foi, non destinés à être
+

@@ -1,0 +1,13 @@
+
+Quatre postulants - trois femmes et un homme - sont conduits en avant. Après avoir fait des promesses d\'obéissance et de sacrifice et après avoir embrassé la croix, ils s\'agenouillent et reçoivent les coups d\'épée sur la tête et les deux épaules. La Grande Visiteuse se précipite alors pour
+
+draper les néo chevaliers des manteaux rouges de l\'ordre. Les nouveaux croisés peuvent maintenant prendre leur place dans les rangs de leurs collègues. Ils y sont chaleureusement félicités. Enfin, le discours d\'adieu du Grand Prieur résonne, dans lequel il met l\'accent sur les devoirs des Néo Chevaliers - \" assister aux cérémonies de l\'Ordre est nécessaire \", \" la lutte doit être menée quotidiennement \" - et les Frères et Sœurs, Altesses et Monseigneur remercient de leur présence. La cérémonie a duré vingt minutes. Le \" chapitre d\'automne \" de l\'Ordre est terminé. Les chevaliers et les dames d\'honneur quittent l\'église. Dehors, dans l\'escalier, ils se mettent à nouveau en formation.
+
+Il est maintenant occupé sur la place Royale. Les voitures entrent et sortent et une centaine de personnes se promènent confortablement. La tête se lève soudain lorsque la colonne blanche-noir-rouge se met en mouvement et traverse la moitié de la place avec un grand sens du théâtre pour s\'arrêter devant la statue de Godefroid de Bouillon, le libérateur de Jérusalem et père de la chevalerie selon la tradition chrétienne. En son honneur, les Croisés actuels déposent solennellement des fleurs. Ils commémorent ainsi leur père spirituel. La cérémonie se termine par une séance de photos de groupe autour de la statue. Ensuite, sous les regards surpris des passants, les chevaliers et dames d\'honneur se rendent en voiture au restaurant \" Les Armes de Bruxelles \" de la rue des Bouchers, puis au banquet 34 .
+
+Ésotérisme
+
+J\'ai finalement réussi à décorer un rendez-vous avec La Grande Visiteuse de l\'Ordre de Saint-Jean-Baptiste, Mme Van H.
+
+C\'est mieux que de consommer du café et des gâteaux en ville tous les après-midi, n\'est-ce pas ? Mme Van H. fait référence à ses activités dans un certain nombre d\'ordres chevaleresques. Elle a 72 ans et est l\'un des moteurs de certaines de ces commandes. Il faut avoir une activité. Ecoutez, mon mari et moi, on a déjà un jour de plus. Si je tombe seul, je dois avoir quelque chose à attendre. Mme Van H. est l\'honnêteté même. J\'en suis certain. Elle me dit que le Dr Van Rossum lui avait demandé de réorganiser l\'Ordre de Saint-Jean-Baptiste, ce qu\'elle veut faire \" avec cœur et âme \". Je ne connais pas grand-chose à cet Ordre, dit-elle, je préfère m\'occuper des aspects ésotériques.
+

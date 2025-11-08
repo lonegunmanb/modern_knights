@@ -1,0 +1,5 @@
+Frédéric Laurent 还报告说，Aginter-Presse 也与法国人 Joseph Strauss（约瑟夫·施特劳斯，哈布斯堡大公的密友）周围的圈子有联系。据 Laurent 称，与西班牙方面的联系是通过 C.E.D.A.D.D.E.（Circulo Espanol de Amigos de Europa，西班牙欧洲之友圈）实现的，这一组织由西班牙法西斯分子和德国纳粹于 1966 年在巴塞罗那创立。它至今仍存在，并为一个“民族之欧洲”（Europe des Nations）而活动。CEDADE 极端反犹。他们的一张贴纸上写着：“注意，50 米内有犹太人”。CEDADE 甚至拥有若干准军事组织。其中经常被提及的有 Alianza Apostolica Anticommunista (AAA，反共宗使联盟)，它包括了阿根廷洛佩斯·雷加（Lopez Rega）麾下部分死亡小队。1981 年，法国媒体报道西班牙 CEDADE 在法国设有一个分支机构，发行杂志《Projets et Références》（计划与参考）。该组织名为“Cercle Ecologique des Amis de l'Europe”（欧洲之友生态圈，CEDADE）。该团体明确援引西班牙原组织，使用相同首字母缩写与符号，分发法西斯领导人的海报，在意识形态上与其处于同一水域，只是语气稍加修饰。“保护你族群的种族统一”、“拒绝因种族混合而导致的贫弱”、“拒绝各种（被视为堕落的）性形式”、“保护你的出身”。这些就是他们认为应当用来构建“新欧洲”的原则。
+
+CEDADE-France 承认曾与其西班牙姊妹组织有过联系，但声称这些联系最近已经中断，相关指控被夸大。然而事实证明，当时《Projets et Références》杂志的主编与西班牙 CEDADE 关系密切。此外，该杂志的“名誉委员会”里还有几位与极右翼乃至纳粹圈子关系极为密切的先生。《Projets et Références》声称这纯属巧合，恰好说明他们多么“开放”。但归根结底又是怎么回事？Francis Dessart 也在该名誉委员会之列。也是“巧合”。
+
+当时还得到佛兰德民族主义者的支持 42。这一“运动”，又称“Union des fédéralistes européens”（欧洲联邦主义者联盟，UEF），又进一步隶属于哈布斯堡大公奥托（Otto de Habsbourg）的泛欧洲联盟（Union paneuropéenne）。

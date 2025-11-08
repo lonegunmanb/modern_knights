@@ -1,0 +1,7 @@
+
+En accord avec les idées d\'Otto, Vankerkhoven déclarait alors : \"Au carrefour des chemins où nous sommes maintenant, le temps est venu pour nous de faire la lumière sur les grandes questions actuelles de notre foi en Jésus Christ, vraiment Dieu et vraiment Homme. Le temps est venu de prier et d\'agir dans l\'espérance chrétienne, avec la certitude sereine que l\'harmonie entre les communautés humaines ne sera pas rétablie tant que les fils de la terre refuseront les obéissances que les hommes libres agenouillent : l\'hommage de l\'homme à Dieu. En 1973, le monde était encore jeune. Alors vous pouvez toujours appeler à la croisade !
+
+Carmina Burana
+
+Chevaliers\...\.... Où mène cette recherche ? Je suis fatigué, épuisé. Elle brille devant mes yeux. Machiavelli, Cervantes\..... la combinaison pour le pouvoir caché. Et si vous touchez ça\... Pourquoi est-ce que je fais ça ? Après tout, je vais quand même me brûler les doigts. Pas plus tard qu\'hier, on m\'a informé que j\'étais surveillé par la sécurité de l\'État. Oh, qui ne l\'est pas ? Pourquoi est-ce que je fais ça ? En fin de compte, je ne vois qu\'une seule réponse. Pour moi-même. En toute honnêteté. Dans dix ou quinze ans, je veux oser regarder mes enfants droit dans les yeux. C\'est pour ça que je le fais. Une illusion ? Un instinct de vie ? J\'ai besoin de repos. Musique. La\'Carmina Burana\' ! Les contradictions. Le cynisme. L\'ingrédient pour maintenir le bon sens. Ma décision est définitive. Demain, je commencerai avec les Teutons.
+

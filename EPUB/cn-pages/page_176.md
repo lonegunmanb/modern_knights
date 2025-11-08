@@ -1,0 +1,7 @@
+南斯拉夫的安德烈王子在佛兰德拥有两个部门：'Prioratus Flandriae'（弗兰德修院）由 Robaeys 领导，以及 'Priory of the Low Countries'（低地国家修院）由 Mailliard 领导。与故意限制成员数量的 'Prioratus Flandriae' 不同，'Priorij der Lage Landen'（荷语：低地国家修院）已成为一个被允许存在的组织。其约七十名骑士在佛兰德社会经济生活中担任关键职位。这些“道德骑士”堂而皇之地以医生-药剂师 (7)、经理-管理者 (9)、大学教授 (3),
+
+银行主管 (4)、公证人 (6)、会计师 (2)、副检察官 (2)、法官 (3) 或各类董事 (11) 的身份出现，以对抗我们社会中的无神论并使基督教价值占上风。这个次级精英群体完全可以被视为佛兰德的基督教显要之一。他们在面向 PVC 的银行界、司法系统、媒体、资助者组织以及政治领域承担重要职能。
+
+在精神层面上，骑士们可以求助于“Chevalier de la Justice”（“正义骑士”）Stefaan Flamey，安特卫普多明我会修道院（Dominicain）院长，以及“Chevalier honoraire”（荣誉骑士）Omer Tanghe，他兼任布鲁日教区教宗传教善会事务主管等职。教皇将该骑士团称为“fantastique”（“极好”），这将成为尊贵诸君关注的事。
+
+有两位“chevaliers d'honneur”（荣誉骑士）无疑值得特别提及：Carl Vandekerckhove 与 Leon Rochtus。Carl Vandekerckhove 是比利时红十字会总干事、哈瑟尔特省警官学校教授、并任 Lennik 受保护作坊主席。一位具声望与影响力的人物。Leon Rochtus 是安特卫普 Parisbas-bank 的董事，并在该银行的公司中担任多种董事与监察职位。他是安特卫普商事法庭的商事法官、Vlaams Economisch Verbond（佛兰德经济联盟）与 Kristelijke Werkgevers（基督教雇主协会）成员，亦属多个经济与文化协会。总之，是一位具声望的人物。这两位骑士以及当时安德烈王子“Prieuré des Pays-Bas”（低地国家先贤会）的一打其他信奉者，已批准“Keure”（宪章）与“Ordre du Prince”（王子骑士团）19。Jan Cappelle 在《L'extrême droite et l'Etat》（极右翼与国家）一书中对这一高贵组织作如下描述 20：“Le Prince 指 Guillaume d'Orange（奥朗治的威廉），他是低地国家反抗西班牙解放斗争的领袖。Orange 王子在战前已被 Verdinaso（Verdinaso，荷语右翼运动）崇敬，因为他热切追求更大的荷兰统一，这一统一还应包括语言边界以南的‘provinces romaines’（‘罗马诸省’）。此骑士团因此具有 pure signature diététique（原文，疑似扫描错误），旨在‘étudier, expérimenter et développer la nature hollandaise’（研究、试验并发展荷兰本质），并希望‘fidèlement à l'esprit d'Orange’（忠实于奥朗治精神）开展工作。”

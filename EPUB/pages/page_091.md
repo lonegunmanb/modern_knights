@@ -1,0 +1,11 @@
+
+Les Chevaliers de Monseigneur
+
+![Image](../media/file14.png){style="width:1.5in;height:1.84722in"}
+
+La bataille pour la préservation et la diffusion des valeurs chrétiennes se poursuit sans relâche à notre époque technologique. A cet égard, peu de choses ont changé depuis les Croisades. Aujourd\'hui encore, évêques et patriarches s\'entourent d\'une multitude de chevaliers pour mettre à genoux les méchants ou les communistes - les nouveaux ennemis. De cette façon, le Pape peut faire appel à ses chevaliers. Les dirigeants des petites églises créent aussi une élite chrétienne pour les protéger.
+
+J\'ai vu les chevaliers de l\'Ordre de Saint-Géréon à plusieurs reprises lors de cérémonies chevaleresques. A ne pas manquer : les longs manteaux élégants avec la double croix blanche sur fond noir se détachent nettement sur les gaines à prédominance blanche ou rouge des chevaliers des autres ordres. Les chevaliers de l\'Ordre de Saint-Géréon trouvent leurs origines dans la troisième croisade. Puis l\'empereur allemand Frédéric Ier, surnommé Barberousse (vers 1123-1190), se rendit au Moyen-Orient avec une armée dans les Balkans pour reprendre Jérusalem, qui fut prise par le sultan Saladin en 1187. Cependant, Frédéric Ier se noya en 1190 dans la rivière Selef en Cilicie (sud-est de l\'Asie Mineure) sous les yeux de ses troupes. C\'est Frédéric Ier qui aurait fondé l\'Ordre de Saint-Géréon pour sécuriser Jérusalem. L\'historiographie reste peu réaliste à ce sujet. Quoi qu\'il en soit, en 1809, Mgr Corneille Stevens fonda une petite église traditionnelle en Belgique, \" en mémoire de l\'ordre de l\'Archevêché de Saint-Géréon qui n\'existe plus. Le but était de défendre la foi traditionnelle et l\'idéal chrétien des chevaliers. Cependant, la fraternité n\'a pas duré longtemps.
+
+Mais, comme le dit une brochure6 : \" en 1976, enfin, Mgr De Vent, héritier des traditions chevaleresques de l\'Orient latin, restaura officiellement, au nom de l\'Église catholique galicienne, l\'ordre du Capitole de Saint- Geréon. Depuis 1976, la primauté de la Belgique sur la Belgique de l\'Eglise catholique galicienne a également eu ses soldats. Mgr De Vent devint bien sûr grand maître de l\'ordre.
+

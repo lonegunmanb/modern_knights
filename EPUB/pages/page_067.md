@@ -1,0 +1,13 @@
+
+Le succès n\'a pas manqué cette fois-ci : Crowley a réussi à s\'entourer d\'une douzaine de femmes inspirées, qui sont presque toutes tombées enceintes. En 1920, Crowley dut quitter Fontainebleu sur ordre des autorités, qui n\'étaient pas très intéressées par le style de vie du magicien.
+
+Dans la ville portuaire de Cefalu, sur la côte nord de la Sicile, non loin de Palerme, Crowley a trouvé un nouveau foyer dans une ancienne ferme délabrée, rebaptisée pour l\'occasion \"abbaye de Theleme\". Ceci deviendrait le nouveau centre magique. Dans cette ferme, Crowley a poussé sa magie jusqu\'au bout. Crowley : \" Dans cette transe (l\'apogée sexuelle), qui ressemble à la mort, l\'esprit devient libre d\'errer et devient un avec le dieu appelé. Dans la mort, cette union devient permanente et le corps du dieu sur la planète va grandir. Nous devons donc, chaque fois que nous le pouvons, sécuriser un lieu privé et inviolable, et y amener chaque jour des victimes. En même temps, au moins l\'une des gonzesses doit être poussée à l\'épuisement par la douleur, les blessures et la cérémonie elle-même. Et s\'il parle des révélations, cela ne doit pas être fait consciemment. Si le
+
+vrai dieu a été appelé comme il se doit, alors ils (les victimes) seront déifiés.' M.
+
+Crowley vivait, cela doit être clair, dans des sphères supérieures et avait apparemment peu de contact avec les choses terrestres. Bon nombre de disciples tombèrent malades à cause de la misère et du froid. La fille de Crowley est morte. Après qu\'un disciple de Crowley, le poète irlandais Raoul Loveday, soit mort dans des circonstances mystérieuses - un meurtre rituel ? Crowley a été expulsé de Sicile avec sa suite.
+
+Ni au Portugal ni en France, le magicien n\'a pu se remettre au travail. Berooid, il revint en Angleterre en 1928 pour des conseils, où il tenta laborieusement de construire une nouvelle existence \"magique\". Au milieu des années 1930, il réussit à fonder un nouveau groupe des AA et, qui plus est, ses écrits devinrent graduellement célèbres dans le monde entier 34.
+
+En 1939, la guerre éclate. Crowley a fait don à Churchill d\'un talisman destiné à arrêter les raids aériens allemands sur l\'Angleterre. Après la guerre, il a déclaré : \" La vérité est que j\'ai gagné la guerre ! Le 1er décembre 1947, une crise cardiaque frappe le magicien, consumé par l\'opium et la morphine. Le 5 décembre 1947, Crowley, entouré de nombreux disciples, fut ravagé dans le cimetière de Brighton. Bronzé dans une robe blanche- rouge-or, pané aux douze signes du zodiaque, couronne sur la tête, sceptre en main, le souverain des Lucifériens a pris sa place parmi les dieux.
+

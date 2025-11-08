@@ -1,0 +1,11 @@
+
+Ils ont généralement une double fonction. D\'une part, ils recueillent secrètement des informations sur leurs amis et leurs ennemis ; d\'autre part, ils réparent ce que l\'on appelle les \" sales boulots \" pour leurs clients. Des choses que les \" gens ordinaires \" ne devraient pas savoir. Le contrôle de ces services d\'information est donc une condition nécessaire pour obtenir et maintenir un contrôle effectif du pouvoir. Cela s\'applique à tous les systèmes étatiques, qu\'ils soient démocratiques ou totalitaires. Lorsque les services d\'information commencent à vivre leur propre vie, loin des dirigeants désignés, le début de la fin est proche. Une coopération efficace entre les autorités politiques, économiques et militaires et les services d\'information est la base d\'un État stable. Mais il y a plus : les Etats vivent grâce ou aux dépens de leurs services d\'information, ou de ceux de leurs \" amis \".
+
+Des informations pour le comte ?
+
+![Image](../media/file16.png){style="width:3.23611in;height:1.48611in"}
+
+La dernière phase importante du développement de l\'Ordre du Temple de Sousa Fontes, le chef de Bodart, semble avoir eu lieu en Belgique. En janvier 1932, Joseph Cleeremans, agent technique, Gustave Jonckbloedt, agent d\'échange, et Théodore Covias, directeur commercial, fondent l\'Association beige des Chevaliers de l\'Ordre Souverain et Militaire du Temple17. A peine un an plus tard, l\'association est officiellement dissoute sous la pression des instances officielles belges. Mais da ; cela ne signifiait pas la fin de l\'Ordre du Temple. En 1936, Covias fut nommé régent de l\'Ordre. Un peu plus tard, c\'est au tour du compagnon de Covias, Emile-Clément Vanderberg, d\'assumer cette tâche. Avec la guerre en vue, les pouvoirs et les archives de l\'Ordre furent finalement transférés à Don Antonio Campello Pinto de Sousa Fontes, père du régent actuel. Don Antohio est devenu officiel jusqu\'à ce que Régent nommé en 1942. Avec sa mort en 1960, Don Fernando
+
+Campello Campello Pinto Pereira de Sousa Fontes a finalement pris la tête d\'une organisation à vocation très internationale qui l\'appelle officiellement \"Ordo Supremus Militaris Templi Hierosolymitani\".
+

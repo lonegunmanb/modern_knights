@@ -1,0 +1,13 @@
+
+En tant que membre de cette organisation religieuse, je m\'engage à rester fidèle aux idéaux de l\'Ordre Souverain de Saint-Jean de Jérusalem ; à utiliser tous mes pouvoirs pour contribuer à son rayonnement, à la protection et au soutien qu\'il offre, à lutter contre tout ce qui nuit à son existence, sans violer les lois de mon pays, à ne jamais agir contre sa dignité, mais toujours se comporter en fidèle chevalier du Christ, donc comme un chrétien convaincu et un homme d\'honneur.
+
+Affaires et politique
+
+Le 28 octobre 1981, à peine deux ans après que la grande priorité Vella- Haber eut eu le plaisir de les rencontrer, \"Dame\" Jacqueline-Marie Speeckaert et \"Meester\" Jacques-Odile Vanderhaeghe furent arrêtés et accusés de fraude fiscale qui s\'élevait à des millions de francs belges. L\'arrestation du duo a provoqué un tourbillon dans les milieux de la nouvelle haute société bruxelloise, mais aussi et surtout dans certains milieux politiques. Après tout, Speeckaert et Vanderhaeghe étaient les partenaires commerciaux privilégiés du ministre d\'État Paul Vanden Boeynants. Avec lui, ils ont dirigé d\'importantes entreprises de viande autour des Boucheries Ghysels, du nom du défunt mari de Jacqueline Speeckaert, Isidore Ghijsels.
+
+Lorsque Jacqueline Speeckaert a été libérée deux jours après son arrestation, elle s\'est réfugiée sur l\'île de Malte, loin de l\'administration fiscale belge. Sur cette île magnifique, il n\'y a pas que Vella-Haber, le \"grand prieur\". L\'un des principaux maillons de la chaîne des entreprises de viande de Speeckaert, Vanderhaeghe et Vanden Boeynants y a son siège social. Depuis février 1982, Jacqueline Speeckaert est à la tête de la société maltaise\'Mediterranean Meat Company\', une société qui depuis sa fondation en mai 1981 est contrôlée par la société suisse AG fur Gastgewerbe. C\'est cette société qui a été utilisée par Paul Vanden Boeynants pour tromper l\'administration fiscale belge 8.
+
+Via Speeckaert et Vanderhaeghe, le riche baron de Vanderberg Paul J. Cams est naturellement entré en contact avec l\'environnement économique et politique de Paul Vanden Boeynants. L\'amitié entre Cams et le ministre d\'État a également porté ses fruits pour ce dernier. Après tout, Cams voulait dépenser \" quelques enclos et compote \" pour nourrir la serre du PSC autour de Vanden Boeynants.
+
+C\'était un sentiment ? Était-ce du \" bon sens \" ? Ou était-ce l\'instinct des affaires ? Quoi qu\'il en soit, le self-made man et leader des chevaliers belges de Vella-Habers Orde Paul Cams a résolument choisi une nouvelle voie à la fin des années 70. Désormais, il ouvrira son \"New Carlton\" aux grands patrons libéraux, qui se feront un plaisir d\'égayer les festivités organisées par Cams.
+

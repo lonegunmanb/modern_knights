@@ -1,0 +1,13 @@
+
+Mais ce qu\'il y avait le plus sur le foie de ces ex-membres, c\'est le fait que les disciples de l\'A.M.O.R.R.C. sont manipulés dans leur conviction religieuse:\'au début on dit : Dieu ou Bouddha, peu importe, tant qu\'on croit en une divinité. Plus tard, la déité est transformée en une force
+
+cosmique non identifiable, l\'\'Al\'. Au neuvième degré, cette affirmation est également balayée sous la table : il n\'y a pas de force cosmique non identifiable : Dieu est toi-même. 13
+
+Réincarnation
+
+Les paroles de Van Drenthem-Soesman, plus précisément lorsqu\'il parlait de Jésus, montraient déjà clairement que les Rose-Croix croient fermement en la réincarnation. La réincarnation se prouve par sa propre expérience, explique l\'ancien grand maître : Ici, nous appliquons une loi cosmique, comme la gravité l\'est, et que nous trouvions ennuyeux qu\'une chose ne tombe pas dans des circonstances normales ou non, la loi existe et nous devons la respecter. Si l\'on s\'opposait à la possibilité qu\'il y ait beaucoup plus de gens sur terre aujourd\'hui que, disons, pendant ou après l\'inondation, je vous demanderais de tenir compte du fait que les continents perdus, comme l\'Atlantide et la Lémurie, ont également été là une fois. Je me contenterai de signaler les endroits suivants dans la Bible où l\'on parle de la réincarnation : Mat.11,10-14 ; Mat.17,10-13 ; Mat.16,13-14 ; et Marc 6,14-15. 14 . Que ces textes bibliques cités soient en effet sur la réincarnation, je préfère m\'en remettre aux exégèses bibliques. À mon avis, ces textes sont assez faciles à interpréter. Une référence directe m\'échappe, au ras du sol puisque j\'ai 15 ans.
+
+Jan est également convaincu de l\'existence de la réincarnation : \" Je crois fermement en la réincarnation. J\'ai clairement fait l\'expérience de son existence. D\'abord, j\'ai commencé à raisonner des choses que je ne pouvais pas expliquer. Sur ces choses, la théorie du nettoyage Camino a donné une explication acceptable. Grâce à des exercices et des expériences basés sur les monographies, j\'ai également vécu des expériences de réincarnation. Pour moi, c\'est donc une fatalité. J\'ai donc un lien très fort avec l\'Égypte. J\'y ai été scribe et j\'en tire des leçons pour l\'instant. L\'expérience de scribe que j\'ai très souvent. Il y a aussi un continui\'teit dans son apparence physique. Certains traits du visage sont toujours très semblables, comme des frères. Et c\'est normal aussi : l\'esprit cherche un corps adapté. Et puisque l\'esprit est continu\...\'\'\'.
+
+La \" loi de la réincarnation \" est liée à la \" loi de l\'indemnisation \".
+

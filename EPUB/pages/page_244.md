@@ -1,0 +1,13 @@
+
+Tous les quatre émanent d\'un manque de crédibilité antérieur. Ils ne sont pas reconnus par les organismes officiels. Et pourtant\...\... La réponse à vos questions se trouve sur les genoux du groupe Bilderberg \", a dit la personne qui m\'a joué dans le magazine, et il a ajouté sérieusement : \" il s\'agit de synarchie \".
+
+Intermède II
+
+Le grand exemple pour Zdrojewski et ses partisans est sans aucun doute le soldat et homme politique polonais Wladyslaw Sikorski (1881-1943). Le général Sikorski était un homme important dans l\'histoire polonaise d\'avant-guerre et a gagné en prestige pendant la Seconde Guerre mondiale. Après une carrière militaire classique, le général est devenu premier ministre en 1923 et a servi les deux années suivantes comme ministre de la guerre dans le gouvernement polonais. Par la suite, et ce jusqu\'en 1929, Sikorski devient commandant de l\'armée. Il s\'est ensuite retiré de la vie politique.
+
+Lorsqu\'en 1939, les troupes d\'Hitler et l\'armée de l\'Union soviétique envahirent la Pologne, de nombreux Polonais importants s\'enfuirent à Londres. Via Téhéran, Sikorski atteint également la capitale anglaise, où il est le chef du gouvernement polonais en exil et des forces armées polonaises. Ceux-ci étaient actifs en Pologne même et aux côtés des Alliés. En France, Zdrojewski (ami de de Gaulle) fut l\'un des leaders de la résistance polonaise coordonnée par Sikorski. En 1943, Sikorski meurt dans un accident d\'avion près de Gibraltar. Les Allemands prétendirent que les Britanniques étaient coupables de sa mort parce qu\'il empêchait un accord de paix entre la Grande-Bretagne et l\'Union soviétique concernant la Pologne.
+
+En 1934, le politicien polonais Joseph Retinger arrive à Londres avec Sikorski. Pendant les années troublées de la guerre, il deviendra l\'un des employés les plus proches du général. Mais Retinger était avant tout le père spirituel d\'un groupe ultérieur de dirigeants du monde, le groupe Bilderberg.
+
+Lorsque Churchill, Roosevelt et Staline redistribuèrent le monde lors de la Conférence de Yalta (4-11 février 1945), la Pologne fut rebaptisée État vassal de l\'Union soviétique, ce qui allait à l\'encontre des souhaits des groupes anticommunistes. L\'insulte faite à la Pologne à l\'époque des accords qui ont été fermés aux yeux d\'un président sénile et dément Roosevelt\', selon la F.C.A.E. 23, a fait sentir les Américains coupables. Peut-être la Pologne était-elle alors considérée dans les milieux anticommunistes comme le symbole et l\'exemple de l\'impérialisme russe. La guerre froide a éclaté dans toute son intensité.
+

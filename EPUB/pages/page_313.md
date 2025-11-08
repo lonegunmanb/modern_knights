@@ -1,0 +1,15 @@
+
+Des hommes en vestes noires brodées de fil d\'or sur lesquelles de nombreuses médailles et insignes ont été appliqués, défilent à côté de leurs longues dames habillées et solidement peintes. Les casques sont inspectés et touchés. C\'est comme ça que les Templiers sont allés là-bas \", dit quelqu\'un à tort. Certaines dames acquiescent d\'un signe de tête incroyable. Je ne me sens pas très à l\'aise. Heureusement, un serveur m\'offre une coupe de champagne. Comme ça, j\'ai quelque chose entre les mains. Un petit personnage noir, trapu et trapu, pénètre soudain au milieu du salon et demande de l\'attention : \" Messieurs et dames, Excellences, notre président, M. Dirix, a été retenu par les embouteillages et arrivera un peu plus tard. Je vous remercie.
+
+M. Arthur Vreven, maître de cérémonie pour la soirée, demande aux messieurs et dames, les excellences, de prendre place déjà dans la salle de fête à côté du salon. D\'abord les invités francophones et français sont emmenés, puis les Hollandais et enfin les Flamands. Parmi les personnes présentes, il y avait aussi un Britannique, un Danois et même un monseigneur hollandais, \" prince de l\'église \", selon Vreven. Le membre du clergé, vêtu d\'une grande armure et décoré de dizaines de médailles et d\'insignes, entre dans la salle de banquet sous les applaudissements, le cigare dans la bouche et dans l\'église de l\'église. Quelque temps plus tard, je vois Monseigneur, caché derrière une porte, compter un paquet de billets
+
+d\'argent à partir d\'une enveloppe, qui lui a été discrètement donnée par Vreven. Qu\'est-ce que cet homme va faire ici, je me demande. Datizou s\'éclaircirait plus tard.
+
+L\'entreprise sélect (je compte une soixantaine de personnes) est équipée de petits snacks et de vin blanc, en prévision de l\'arrivée du président. Dans la salle de fête, un quintette joue de la musique de la fin du XIXe siècle, des polkas et des conifères sirupeux. Le public adore ça. Le record de l\'entreprise sera plus tard, pour la somme ronde de 400 francs, très apprécié. Le disque me fera toujours me souvenir de cette soirée \", dit poliment une femme à côté de moi.
+
+Le maître de cérémonie demande à nouveau la parole. Vreven est un amuseur né, n\'est pas timide face aux blagues et prend parfois son violon pour assister l\'orchestre du salon. Mesdames, Messieurs, Mijne Damen en Heren, Excellences, Excellentie, Excellences, Excellentie, may I present you, introduce you can vous, les excellences l\'ambassadrice de Cameroun et l\'ambassadrice de Cambodge, and our chairman, et notre president, Urbain Dirix. Applaudissements enthousiastes. L\'entreprise est complète. La fête peut commencer.
+
+Tous les grands hommes de l\'histoire étaient des archers, il suffit de penser à Napoléon, Mussolini, Louis IV\', dit un gentleman un peu plus bas sur la table, complaisant. Lui aussi est un archer.
+
+Mais tous les grands artistes étaient des homards \", répond une dame, \" c\'est étrange, n\'est-ce pas ? En effet, c\'est une langouste. Je décide de ne pas participer aux discussions.
+

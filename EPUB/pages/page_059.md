@@ -1,0 +1,9 @@
+
+Les gens reçoivent de l\'aide - le cas d\'un footballeur souffrant de maux de dos sévères, soudainement guéri par l\'utilisation du magnétisme, est révélé
+
+Le Verseau lutte donc contre le mal, y compris contre les groupes qui pratiquent la magie noire et propagent le mal. Le Verseau est l\'une de ces associations qui mènent un combat psychologique titanesque au-dessus des citoyens ignorants, contre des organisations comme les Chevaliers de Lucifer. Pour mener à bien cette bataille, les membres du Verseau se sont protégés, ainsi que leurs familles et amis, des attaques du mal et des magiciens noirs : \" par des prières et autres moyens strictement secrets, un miroir est créé qui reflète le mal à ceux qui l\'ont envoyé. Ce que nous faisons réellement, dit Michel Vanderus, c\'est de créer des courants de pensée positive pour bloquer les pensées négatives. Des pensées négatives naît le mal qui prend toutes sortes de formes et des maladies, principalement au niveau psycho-somatique. La prière est le pouvoir spirituel de transférer ces pensées positives\".
+
+Sur le chemin du retour, je me pose des questions. Tout comme les Chevaliers de Lucifer, les membres de la Compagnie Chevaleresque Universelle du Verseau, vêtus de manteaux noirs lors des cérémonies \"officielles\", font référence aux prétendues traditions secrètes de l\'Ordre du Temple. Les points de vue sur ce que les Templiers auraient fait en secret semblent très différents. Qui est Monseigneur Colin ? Il a ordonné Claude et Michel Vanderus, dignitaires suprêmes de la Compagnie, \" abbé \". Derrière la\'Compagnie\' se trouve une église, une église qui relève le défi contre des groupes diaboliques comme les\'Chevaliers de Lucifer\',\'l\'Ordre Vert\' ou\'Thule\'. La lutte spirituelle d\'une église.
+
+Je me sens confus. Les questions s\'accumulent. À ce stade de la recherche, je ne peux plus voir les arbres à travers la forêt. Les Templiers ?
+

@@ -1,0 +1,13 @@
+
+La purification de l\'âme\', commande Sornin.
+
+Le Visiteur général se présente au Visiteur général et lui souffle au visage. Ils sont purifiés, grand maître\', crie-t-il.
+
+Maintenant, le grand maître lui-même s\'approche de la paire pour lever l\'interdiction de parler qui leur a été imposée ce matin. Cela se fait en touchant la bouche. Les deux sont maintenant, les bras croisés devant le corps, menés en avant. Le grand maître répète à quel point l\'affaire est grave et leur demande de promettre de vivre en chevalier, de ne jamais voir un autre chevalier comme un ennemi même s\'il se bat pour une autre affaire et de toujours rester fidèle à l\'Ordre et à son grand maître. Ils le promettent.
+
+L\'homme s\'agenouille. Le maître de cérémonie remet l\'épée à Sornin. Il frappe les épaules et la tête du postulant, au nom de Hugo de Payns et des autres. Un coup dur et sec avec la main sur l\'épaule met fin à la chevalerie. Un nouveau chevalier est né. Devant moi, un Michaelite se tient droit, enlève son manteau et fait un pas vers le nouveau chevalier. Il l\'habille du manteau et dit : \" Tu n\'auras plus jamais froid \". Alors c\'est au tour de la femme. Elle n\'est pas absorbée dans l\'Ordre par l\'épée mais par une rose. Elle aussi n\'aura plus jamais froid. Tous deux reçoivent leur diplôme honorifique et ont lieu dans les rangs de leurs frères Michaelite frères. Ensuite, c\'est le tour des pages. Cinq enfants, âgés de huit à douze ans, promettent fidélité à l\'Ordre et obéissance à son maître. Les nouvelles pages sont bien accueillies et adoptées par leurs fiers parents. La cérémonie proprement dite est maintenant terminée. Sornin chante les louanges du défunt Raoul Alibert de la Vallee, champion de la chevalerie moderne. Les deux chevaliers de l\'Ordre Dynastique d\'Alibert, dont Raoul était grand maître, ne peuvent guère contrôler leurs larmes.
+
+Nous ne l\'adorons pas, mais il était notre chef spirituel \", dit le grand maître de l\'Ordre de l\'Etoile avec le recul, visiblement ému. Raoul Alibert de la Vallée était leur \" protecteur \". Tandis que Sornin leur rend hommage, quelques messieurs et dames partagent pain et vin. De cette façon, un pacte d\'amitié symbolique est forgé entre les ordres.
+
+Le grand maître chuchote à l\'oreille de son maître de cérémonie. Il attrape quelques rouleaux de papier et se place à côté de son supérieur. Je voudrais nommer quelques dignitaires comme priorités honorifiques de notre Ordre \", dit Sornin. Ainsi, les grands maîtres ou grands prieurs présents reçoivent un certificat. Cela s\'accompagne d\'embrassades. Applaudissements.
+

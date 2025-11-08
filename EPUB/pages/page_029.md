@@ -1,0 +1,13 @@
+
+Le martiniste impressionne. Non seulement les références continues à toutes sortes de groupes ésotériques et occultes à travers les siècles trahissent le mystique en lui. C\'est aussi dans l\'apparence : le regard vitreux et pourtant pénétrant au milieu des cheveux noirs mi-longs et bouclés et de la barbe idem lui donne une image\'sage\'.
+
+Soudain, un autre La Bamba rugit dans la pièce. Le martiniste tapote rythmiquement la table avec une carte de bière. En fait, je ne devrais rien dire sur le monde intérieur de l\'ordre martiniste. Je suis lié par un
+
+serment de secret. Je glisse ma chaise plus près. L\'homme a été mis sur terre par la \"Très Haute Sagesse\", l\'appeler Dieu, Bouddha ou quiconque, en signe de sa justice et de son pouvoir de limiter le mal et d\'apporter la paix dans l\'univers. Le mal était représenté par le Prince des Ténèbres, l\'ange déchu, qui était convaincu qu\'il pouvait acquérir la même puissance que Dieu. L\'homme était donc puissant : il appartenait à la race sainte, car Dieu lui a donné un morceau de sa divinité. Peut-être que l\'image de Dieu-mer et de gouttelettes humaines dans la mer est la plus compréhensible. Au commencement, l\'homme était hermaphrodite et immortel. On lui a donné un obus pour se protéger de l\'éphémère des choses sur terre. Cette coquille n\'était pas sous l\'influence des lois de décomposition. La race sainte avait une connaissance énorme. Il connaissait toutes les sciences, tous les faits spirituels et occultes. A1 que la connaissance était contenue dans le \" Livre de l\'homme \", composé de dix pages. Ces dix pages forment un ensemble substantiel. La personne \" sainte \" a eu l\'occasion de traiter ces dix pages d\'un seul coup d\'œil. C\'est ainsi qu\'il a pu accomplir sa véritable tâche : créer l\'ordre dans le désordre du monde nouvellement créé. '
+
+Tandis que les paroles du martiniste résonnent encore sous mon cerveau - mortel - de mortel -, un\'Rock around the Clock\' brille dans la salle de banquet adjacente. Un contraste saisissant. Le martiniste saisit son verre de vin rouge avec confiance. Il retourne lentement le verre et goûte avec délicatesse. Il acquiesce. A-t-il peut-être découvert une nouvelle vérité ?
+
+Comme s\'il lisait mes pensées, il poursuit : \" Quelqu\'un m\'a demandé il y a une heure si je pouvais faire une prédiction avec le marc de café dans son sac. J\'ai alors dit : oui, c\'est ce que je vois : soit vous aurez besoin d\'un nouveau sac, soit vous devrez le rincer.
+
+Le \"Livre de l\'Homme\" ? Il dit comment l\'univers est né. Le livre explique la dualité, la double nature qui caractérise et conduit l\'homme actuel. La dualité est venue avec la chute de l\'homme. Il a été séduit par le Prince des Ténèbres, l\'ange déchu.
+

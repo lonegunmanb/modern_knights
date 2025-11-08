@@ -1,0 +1,13 @@
+
+On aurait dit que vous vous trouviez soudain à une autre époque, loin du bruit de la civilisation. Quand j\'ai quitté l\'église après le culte, j\'ai laissé un siècle derrière moi à chaque pas. La confrontation avec la masse dense de la Nieuwstraat m\'a touché et m\'a même rendu agressif.
+
+C\'est peut-être l\'appétit pour les cérémonies imaginatives, voire bombassées, d\'une époque révolue dont l\'évêque Macos puise sa motivation. L\'époque des vrais patriarches, des rois et des\.... empereurs. C\'est ce que l\'on peut déduire de l\'acte glorieux qu\'il a commis le 18 novembre 1956 dans une crypte d\'une église méthodiste à Rome. Son Saint Sacrement Monseigneur Jean-Marie, Prince de Théopolis et Prince du Saint Empire romain d\'Orient, par la grâce du Patriarche de Dieu de l\'Eglise primitive catholique apostolique d\'Antioche, de tradition orthodoxe et syro- byzantine, 147ème successeur de l\'Apôtre Saint Pierre sur le trône d\'Antioche puis couronné \"Sa Majesté impériale Marziano II Lavarello Lascaris, Basileus de Constantinople et de tout l\'Orient chrétien\" à 269ème Empereur romain, successeur d\'Auguste et Constantin\" 5 ! Il y a donc encore des empereurs romains dans notre XXe siècle cool et matérialiste. L\'imagination humaine ne représente rien. L\'empereur aztèque Moctezuma est rejoint par d\'autres.
+
+Le tout nouvel empereur romain fonda, comme il est d\'usage dans ces milieux, son ordre de chevalerie. Surtout les Américains nostalgiques semblent aimer transférer de grosses sommes, allant de 1000 à 5000 dollars, à Sa Majesté pour devenir chevalier dans les ordres. Quelques-unes des créations de Marziano : Ordre Dynastiques Suprême de Saint-Lazare, Ordre Souverain de l\'Aigle Blanc de Yougoslavie, Ordre Celeste, Souverain, Imperial et Militaire de Constantin le Grand, Ordre Dynastique de Milos le Grand 6. Cela ressemble à un rêve\...
+
+Le 1er novembre 1957, l\'actuel Monseigneur copte effecdef fut confirmé
+
+comme le premier patriarche de l\'Eglise Orthodoxe Autocephale Antiochienne en Europe, sous le nom de Mar Joannes-Maria I. Ce patriarcat est en fait l\'une des nombreuses petites églises qui tentent de gagner une place sous
+
+le soleil près de Rome, le grand frère. Mar Joannes Maria I a occupé ce poste jusqu\'en 1972 et Boris Ier lui a succédé, représenté en Belgique par Monseigneur Colin, un des magiciens blancs de l\'Ordre du Verseau 8. Depuis lors, Joannes Maria est au service de l\'Église orthodoxe copte, selon la tradition fondée par l\'apôtre Marcus en 42 après J.C. à Alexandrie. Cet ancien patriarcat d\'Alexandrie fut en effet rétabli en 1824 et forme une église indépendante dans la tradition copte.
+

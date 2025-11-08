@@ -1,0 +1,11 @@
+
+Nous avons fondé et fondé, le 24 juillet 1951, un Ordre et une Société fraternelle et amicale, avec un certain nombre de Chevaliers ; nous lui avons donné le nom de\'Compagnons d\'Honneur\' (Chevaliers ou Frères d\'honneur).
+
+Ce message plutôt officiel pourrait être lu dans l\'annexe du Moniteur belge du 12 juin 1969\[16\]. L\'ordre, appelé dans son intégralité \" Association Militaire et Hospitalière des Chevaliers de la Croix de 1\'0rdre des Compagnons d\'Honneur \", a choisi comme devise \" Mon honneur s\'appelle Fidélité \", selon les mots de l\'élite SS, De l\'hôtel Mac Donaid de
+
+Bruxelles, où se trouvait le siège social, les Compagnons d\'Honneur voulaient devenir une nouvelle élite, sous la grande maîtrise de Jacques Pirard, Un homme qui savait ! Un homme bien connu des services de sécurité belges et français\...
+
+Pirard, né à Paris en 1923, a probablement commencé sa carrière douteuse en 1943 en tant que membre de la célèbre OrganisationTodt, du nom de l\'homme politique nazi allemand Fritz Todt. En 1946, il dirige la section belge de l\'OSS-Religion des Druides, une organisation nazie et antisémite, dont il est alors membre du Sicherheitsdienst de Lyon, Enfin, en 1966, Pirard préside le comité belge de l\'Union Nationale de Défense des Intérêts des Anciens Combattants Franco-Belges, association d\'anciens combattants d\'origine française sympathisants d\'extrême droite, qui collabore très étroitement avec les Compagnons d\'Honneur\'I7. Jacques Pirard s\'est également construit une \" carrière juridique \" assez remarquable : en 1974, avec son épouse Joséphine Dewit, \" Dame de Justice \" de l\'ordre, il est arrêté pour faux, détournement de fonds et vol18.
+
+Jacques Pirard, un digne leader des Compagnons d\'Honneur ! Il est difficile de dire quelles étaient les activités réelles de cette organisation, mais le fait est qu\'avec Pirard à sa tête, elle chérissait une idéologie politique claire, celle d\'un nouvel empire millénaire ? En 1969, le temps était venu. Son Excellence\' Sylvère Lebon a été nommé par Pirard membre du\'Conseil de l\'Ordre\', avec le titre glorieux de\'Shérif suprême\' (Connétable)19. Lorsque, pour quelque raison que ce soit, Lebon démissionna du Conseil un an plus tard, l\'ordre décida :
+

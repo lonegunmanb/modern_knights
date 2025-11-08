@@ -1,0 +1,13 @@
+
+Le chevalier de Lucifer : rencontre avec les dieux
+
+Il est maintenant 12 heures du soir. L\'heure des fantômes, raconte les histoires des enfants. Suis-je libéré de la peur ? Quand je regarde par la fenêtre dans la nuit et que je vois l\'ombre des arbres - c\'est presque la lune en voile - quelque chose ronge profondément en moi. La peur ? Une horrible silhouette pourrait-elle alors apparaître ? Là, à gauche, à côté de l\'aîné ? Avec la tête d\'un dollar, comme dans la tradition. On dirait une transe. Tu vois ce que tu penses. Lucifer, ce sourire, ce sourire. Je ne suis pas libre de la peur. J\'ai été élevé avec ça. Peur de l\'inconnu, de l\'incertitude. La peur peut prendre des formes. La peur, un nom : Lucifer. La peur est le plus sombre de l\'esprit, la confrontation ultime avec soi- même. Je refuse et je me débarrasse des pensées. Allumez rapidement la télévision, loin de la réalité de l\'obscurité et retournez à l\'illusion. Les images de télévision en noir et blanc me font oublier mon esprit apathique. Est-ce que j\'oserais le faire ?
+
+Il y a une heure, lui, le \" Chevalier de Lucifer \", a dit appartenir aux \" Guerriers de Lucifer \", un groupe très secret à Bruxelles. Si j\'étais préparé, je pourrais vivre une séance de spiritisme. Lui et moi, \"personne d\'autre, c\'est la condition\", a-t-il dit strictement. Autre chose : vous ne pouvez pas enregistrer sur cassette, vous pouvez prendre des notes. J\'ai immédiatement dit oui. Quand j\'ai baissé le klaxon, le doute s\'est levé. Je ne vais pas trop loin ? Certains maîtres lucifériens ou sataniques sont même sur le point de mourir. Témoin des meurtres rituels de l\'actrice de cinéma Sharon Tate et de quelques amis commis en 1969 à Beverly Hills par\'Jesus Christ\' Charles Manson et ses disciples, appelés\'famille\'. Je me souviens soudain des paroles d\'un initié dans la loge de Memphis-Misrai\'s :
+
+Je suis un païen, dit l\'homme en riant, un cheveu noir couvrant sa tête, cela signifie que j\'adore beaucoup de dieux, beaucoup de pouvoirs. Moeihjk à saisir, hein ? A1 ces dieux font partie de la seule force qui a créé l\'univers. Moi et nous, les chevaliers de Lucifer, nous appelons le pouvoir Lucifer et Diana, la double unité, la perfection homme-femme.
+
+Je hoche la tête. Je me méfie.
+
+Je croyais que tu n\'y croyais pas. Sa réponse est étonnante. C\'est pourquoi j\'appellerai plus tard Vassago, l\'esprit dans le feu primordial, d\'où la terre et finalement l\'homme sont nés. Vassago règne sur 72 démons. Il était déjà connu par les Babyloniens sous le nom de Néphélim, et était également cité par Wierus, disciple de Cornélius Agrippa.
+

@@ -1,0 +1,13 @@
+
+Après la Première Guerre mondiale, Gdansk, comme il y a des siècles, a obtenu le statut de \" ville libre \" sous la supervision de la Société des Nations. En 1939, Hitler annexa la ville. Après la chute du Fiihrer, Gdansk a été définitivement transféré en Pologne. Les habitants de Gdansk auront autre chose à l\'esprit que de remettre en question cette décision, je suppose. Busa I, en tant que \"Président de la République de Dantzig\", veille à ce que l\'histoire et l\'avenir soient préservés.
+
+Le curriculum vitae du buste de 1983 est aussi amusant :
+
+Son Bliss Viktor Ivan Busa est né à Palerme, en Sicile. Il est sculpteur, archéologue, paléontologue, critique, historien et spécialiste en politique internationale. En 1966, il a reçu le prix Jose Cardueci pour la poésie et a été candidat au prix Nobel de littérature pour son invention de la poésie mozalek. Après avoir obtenu divers doctorats et diplômes universitaires, il a été nommé Président de la République de Dantzig et leader de son Gouvernement International, ce qui est dû à ses activités d\'homme d\'Etat et à sa grande valeur politique et diplomatique. Son Bliss Vittorio Busa est également président du Parlement mondial pour la sécurité et la paix (organisation intergouvernementale enregistrée auprès du Secrétaire général de l\'ONU). Il a reçu une série de prix de plusieurs gouvernements étrangers, dont le titre d\'amiral de l\'État de l\'Alabama (États-Unis), sous la direction du chef Gold Wallace, et de colonel adjoint de l\'État de Géorgie (États-Unis), sous celle du chef Gold Jimmy Carter. Il est également citoyen honoraire des États de Géorgie, du Nebraska et de l\'Oklahoma. En tant qu\'auteur, His Bliss a publié une série d\'ouvrages littéraires, artistiques, scientifiques et politiques qui ont suscité des commentaires louables de la part de critiques et du public. Pour son énorme travail littéraire et artistique, il a été reçu dans plus de 190 universités, institutions culturelles et diplomatiques. Son Bienheureux Viktor I Ivan Busa est Archevêque orthodoxe et Patriarche mondial des
+
+Eglises orthodoxes d\'Amérique, et Grand Prieur œcuménique de la Pieuse Alliance des Eglises chrétiennes. Sa Béatitude est aussi Patriarche de Dantzig et de toute la diaspora orthodoxe dans le monde\..... . ,23
+
+La folie ? Folie ! Et comme si cela ne suffisait pas, Busa est également devenu \" Son Altesse Royale Timour II \". Grand Khan de toute la Tartarie et de la Mongolie\".
+
+Si vous lisez attentivement tout cela et que vous le laissez pénétrer, vous devez inévitablement arriver à la conclusion effroyable : les rois et les présidents actuels peuvent être surpris, car Busa I semble être le maître du monde.
+

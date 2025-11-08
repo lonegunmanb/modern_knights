@@ -1,0 +1,13 @@
+
+Pendant un moment, il y a un silence oppressant. Le murmure de l\'auberge devient de plus en plus menaçant. Mais\....\', la femme blonde cherche les mots justes, \'ce que je veux dire\...\'. Et mon collègue se posera la même question\.... Que devrions-nous dire à la famille ou aux amis ? Peuvent-ils savoir ce qu\'est l\'A.M.O.R.C., ou est-ce un secret ? Tôt ou tard, ils remarqueront que nous sommes à A.M.O.R.C. Qu\'est-ce qu\'on fait alors ?
+
+Le Rose-Croix acquiesce : il connaît ces questions et cette peur. Ecoutez, dit-il rassurant, les gens diront : depuis que vous avez rejoint A.M.O.R.C., vous avez complètement changé. Certains diront peut-être même : il n\'y a plus rien à faire avec vous. Mais pensez-y, A.M.O.R.C. est entre les deux pour rien. Parce que vous avez déjà changé parce que vous n\'êtes plus satisfait de votre vie actuelle. Vous vous sentez mal à l\'aise. Vous ne vous contentez plus de ce que vous êtes maintenant. Vous avez déjà opté pour le changement\". Les deux dames acquiescent, bien qu\'avec hésitation. Votre choix est fait : c\'est le changement. A.M.O.R.C. n\'a rien à voir avec ça. Pour réaliser votre but ultime dans cette vie, vous avez choisi A.M.O.R.C. comme moyen. C\'est tout, c\'est tout. Et, je dois ajouter : c\'est un bon choix.
+
+Les dames semblent soulagées. Une question brûle encore sur les lèvres. Mais comment expliquer ce qu\'est A.M.O.R.C. ? Le Rose-Croix rit. Il pourrait s\'attendre à cette question. A.M.O.R.R.C., c\'est vous ! C\'est ça, c\'est ça ! Les dames n\'ont plus de questions, bien que le désespoir soit sur leur visage. Ci-dessus se trouve la \'Grande Initiation\'. Le Rose-Croix se tient droit : \" Allons-nous y aller ?
+
+Les pharaons
+
+Pendant la\'Grande Initiation\', les dames sont initiées aux secrets cachés de l\'humanité et de la nature. Elles forment les nouveaux maillons d\'une chaîne ancienne de sagesse intérieure. Du moins, c\'est ce que prétend A.M.O.R.C., l\'ancien ordre mystique Rosae Crucis. Il prétend être l\'héritier des enseignements secrets des Egyptiens, des premiers chrétiens, des Templiers et d\'autres sociétés considérées comme mystérieuses.
+
+Devant moi se trouve une brochure de l\'A.M.O.R.C., publiée en 1963. Elle raconte que le pharaon Thotmes III, qui régna entre 1500 et 1447 avant J.- C., fut le véritable fondateur de l\'Ordre des Rose-Croix. Thoutmosis (ou Thotmes) fut nommé par les Kheri Hebs, les grands prêtres, pour succéder à son père sur le trône. Cet événement fut aussi pour lui une expérience mystique car il révéla qu\'il fut désigné pour devenir plus tard le fondateur de la Fraternité Secrète. L\'histoire nous dit vraiment qu\'en cette occasion, Thoutmosis s\'est senti \"élevé\" au ciel.
+

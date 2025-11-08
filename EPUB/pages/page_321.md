@@ -1,0 +1,5 @@
+
+Il semble que\'Pax Mundi\' veuille concurrencer les\'Nations Unies\'. Le déploiement des apôtres de la paix est-il motivé uniquement par leurs sentiments philanthropiques ? Cela me semble fort. S\'agit-il de prestige, de se trouver important ? Il n\'est pas nécessaire de chercher quoi que ce soit derrière tout cela, dit Dirix, \" comme n\'importe quelle autre association, Pax Mundi est aussi une sorte de club de service. C\'est tout ce qu\'il y a à faire. Vous vous unissez à d\'autres personnes et cela crée des contacts. Par exemple, un de nos membres construit des turbines. Eh bien, nous avons fait don d\'une telle turbine à la Thaïlande et au Cameroun. C\'est ainsi qu\'on nous offre des commandes, parce que ces pays ont besoin de plus, bien sûr. Nous nous aidons les uns les autres\". Pax Mundi\' s\'occupe donc des relations commerciales. Simple et simple. C\'était déjà visible lors de la cérémonie de la chevalerie au château d\'Ordingen. L\'organisation ouvre certainement des routes commerciales aux pays en développement. Les contacts sont pavés de prix de la paix. C\'est là que réside l\'attrait de l\'Académie ? Ingénieux !
+
+Quelques lettres :
+

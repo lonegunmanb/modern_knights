@@ -1,0 +1,13 @@
+
+Partout il y a des bandes de soutien, des bannières de l\'Ordre avec la célèbre croix rouge. A droite se trouve un grand et beau chandelier. Les diplômes sont fixés aux murs. Une longue table au milieu de la pièce est décorée d\'une nappe blanche géante avec une énorme croix rouge. Cela dépasse mon imagination la plus folle.
+
+Commandant Vanderstock - \" Je ne suis plus le \" Grand Prieur \", mais j\'exerce cette fonction jusqu\'à ce qu\'un nouveau soit élu. Le poste est actuellement vacant\" - m\'accueille avec gentillesse mais de loin, méfiant. Compréhensible, un étranger pénètre dans le Temple. Des formules de politesse sont échangées avec les autres participants, tous chevaliers ou grandes dames de l\'Ordre du Temple. Le commandant Vanderstock me demande de m\'asseoir à une plus petite table, dans le coin du Temple. Les autres nous rejoignent aussi.
+
+Au fur et à mesure que le temps passe et que les verres de \" scotch du tonneau \" atteignent la personne intérieure et aussi la personne spirituelle, la conversation se relâche. La méfiance s\'est dissipée, du moins en partie. Ce sont des gens qui adhèrent à des principes moraux tels que la politesse, l\'honorabilité. La combinaison est une forme dépassée de dignité. Principes qui devraient décorer la vie actuelle d\'un Templier. Surtout le commandant Vanderstock porte cette dignité d\'une manière contrôlée et moralisatrice. Il est sans aucun doute - vous pouvez le sentir
+
+Nous n\'avons rien à voir avec ce qui s\'est passé en France dans les années 1970 \", dit Vanderstock, légèrement irrité, \" nous sommes autonomes. Après l\'affaire SAC, Zdrojewski, notre grand maître, a donné à chaque priorité une certaine autonomie. Le maréchal Lamirand est actuellement grand maître. Sousa Fontes est le régent, Lamirand le grand maître par intérim.\". Le commandant soupire:\'un schisme, nous ne sommes pas encore sortis. Une seule chose est certaine : la succession de l\'Ordre du Temple est assurée, même si l\'état actuel est confus.
+
+La porte est frappée. Le barman se précipite avec un nouveau scotch : \" Boire comme un templier \". Le proverbe est tout à l\'honneur. Non, ces complications de la SAC ne nous ont pas fait de mal. Le plus important est de cultiver l\'idéal du chevalier : le courage, l\'abnégation, une vie honorable, la recherche en soi pour devenir une personne meilleure, un chevalier digne. La tolérance est également au premier plan chez nous. Le
+
+commandant parle. Les autres acquiescent et boivent. Même les athées peuvent venir à nous, parce que si l\'athéisme existe, Dieu l\'a désiré. Nous devons donc être prêts à les écouter aussi. Le temple blanc-rouge est plein de bonnes intentions.
+

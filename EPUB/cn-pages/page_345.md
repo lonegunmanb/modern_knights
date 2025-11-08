@@ -1,0 +1,5 @@
+
+1982年10月中旬，Tejero 再次登上西班牙报纸的头版。随后，西班牙内政部长对 Tejero 的政党表示严重怀疑。据称它可能参与了本月初被破获的一场阴谋。该阴谋旨在通过另一场政变阻止 1982 年10月28日选举的举行。当时几乎可以肯定社会党人将获得多数，这显然不符合 Tejero 追随者的利益。事实上，Tejero 在 1982 年夏天就从他的牢房里成立了一个政党。“如果我不能以非法方式进入议会，那就通过合法手段”，中校一定是这样想的。这个政党名为 Solidaridad Espanola（西班牙团结党），当然由极右翼人士构成。该党共同创始人兼董事会成员是 Tejero 的律师 Angel Lopez Montero。已经可以察觉，“La Noche”审判中许多被告的律师与西班牙极右翼运动有着密切联系。不仅有 Angel Lopez Montero，还有 Gerardo Quintana Aparicio——他是将军 Louis Torres Rojas 的律师，也是多名逃到西班牙的意大利极右翼人士的法律顾问，意大利为此系统地提出引渡请求 63。还有 Antonio Munoz Perea，他是另一名参与政变者——上尉 José Pascual Galvez 64 的律师。Munoz Perea 也是极右翼的主要辩护人之一，曾是极右翼组织 Fuerza Nueva 的积极分子。上述律师（Angel Lopez Montero、Gerardo Quintana Aparicio 和 Antonio Munoz Perea）构成了'Prieuré Royal de Castille et Léon'、'Ordre de Saint Jean de Jérusalem'、'Protecteur Royal' Alexis 的核心！Mariano Sanchez Covisa，“Guerilleros del Christo Rey” 的创始人，以及其他多位著名右翼人士也在其中！西班牙周刊 Tiempo 还报道，这份名单还应补充许多来自自由职业、高级军官、司法界以及贵族的人士。因此，西班牙内政部的一位专家表示：“这可能是一部分，或是一个类似意大利发现的 P-2 类型秘密会所的胚胎。”
+
+这一奇怪事件是非常偶然才被发现的。1985年2月1日，一名男子被发现在巴塞罗那机场死亡。乍看之下，死因似乎是心脏病突发。但当警方在死者的公文包里发现 8000 万比塞塔以及两本外交护照时（一本以 Samuel Rosenbaum 名义签发，另一本以 Isidoro Corn 名义签发），他们显得十分惊讶。
+

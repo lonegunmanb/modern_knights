@@ -1,0 +1,13 @@
+
+Le recrutement peut commencer. La base de données d\'adresses d\'A.M.O.R.C. fait des miracles : en moins de temps qu\'il n\'en faut pour que l\'Ordre compte environ 1500 patients qui suivent 10.
+
+La relation entre Origas, roi de Jérusalem, et Bernard, grand maître ésotérique, resta très cordiale au moins jusqu\'en 1972. Après cela, il y a eu un accroc dans le câble et le \" Roi de Jérusalem \" est également devenu grand maître de l\'Ordre Renove du Temple.
+
+L\'Ordre fit bientôt le tour de l\'extrême-droite : en abritant les militants de l\'Internationale Noire, en faisant office de boîte postale pour les néo- fascistes italiens 11, mais lorsque Origas distribua des tracts anticommunistes de groupes d\'extrême-droite par l\'intermédiaire de l\'Ordre, il y eut des manifestations dans les rangs des Chevaliers. Entre autres Michel Carpenet, le lieutenant-général d\'une section de l\'Ordre démissionna et fonda peu après avec quelques fidèles partisans l\'Ordre des Chevaliers du Saint-Temple, également une organisation néo-templier.
+
+Mais revenons à la pomme d\'Origas : l\'Ordre Renove du Temple. Roger Facon et Jean-Marie Parent mentionnent également dans leur livre\'Les Meurtres de l\'Occulte\' 12 une résolution adoptée par le\'Chapitre Magistral\' de l\'ORT en juin 1975:\'Les exercices de tir et de karaté doivent continuer\... Deux gardes du corps doivent être mis à la disposition de notre grand maître\". Il n\'y a pas de roi sans gardes du corps.
+
+Dans une lettre d\'Origas, il écrivait 13 : \"Je suis le point central de toutes les forces, de toute la lumière qui descend de la Hiérarchie et de la Grande Fraternité des Loges Blanches, qui dirige notre Ordre par Agartha et le Roi du Monde (Origas se disait aussi roi du Monde)\.... Il faut obéir au Grand Maître, non seulement à cause de sa sagesse, mais parce qu\'il représente Dieu, parce qu\'il est le signe vivant du Christ dans l\'ordre\... Gthoorzaamheid qui se concentre uniquement sur la simple exécution des ordres est impuissant et imparfait ; cette obéissance n\'est pas une vertu\... Le second degré d\'obéissance n\'est pas seulement d\'exécuter les ordres du supérieur, mais aussi de les vouloir vraiment. Il vaut encore mieux se débarrasser de sa volonté et prendre celle de Dieu, celle de son Supérieur\... Le troisième degré d\'obéissance est de lui donner aussi l\'esprit. Il ne s\'agit pas seulement de vouloir, mais aussi de penser la même chose\.... Ces principes d\'obéissance ne s\'appliquent pas seulement au supérieur, mais aussi à tous les grades, à tous les officiers et au grand maître. Lui, le grand maître, obéit à Dieu\...\".
+
+Georges, apparemment confirmé, a laissé cette histoire effrayante.
+

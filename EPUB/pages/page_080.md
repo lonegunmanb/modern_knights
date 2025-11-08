@@ -1,0 +1,13 @@
+
+Setu an Tan ! Setu un Tan Tad ! Setu Tan Belen ! L\'Internationale Luciferienne est un fait. A cette occasion, le grand maître de Cologne écrivit\'Lucifer-G\', l\'antipaus luciférien, une bible luciférienne. On y présente une histoire alternative de la création et les principes de la foi païenne y sont élaborés. Quelques citations sont données plus haut dans ce chapitre.
+
+En 1975, quelque chose de très important s\'est produit dans certains cercles occultes internationaux. Le début d\'une nouvelle ère\", comme nous l\'a dit Origas. Il est indéniable qu\'Origas, en tant que représentant de l\'Ordre Renove du Temple, a participé à la fondation de l\'Internationale Luciferienne. Mais il y a plus, beaucoup plus\....
+
+Les actions de la nouvelle Internationale ne se limitent pas à la magie diabolique et à l\'évocation possible du mystérieux et mortel \"Rayon vert\". Il y avait aussi des camps d\'entraînement organisés, où les militants étaient entraînés habilement à la bande dessinée avec l\'ennemi aussi physiquement à traiter. A une dizaine de kilomètres de Clermont-Ferrand, en France, les inspecteurs de la police française ont découvert un camp d\'entraînement militaire des Fils du Feu, un mouvement luciférien français, cosignataire de la charte de l\'Internationale, à l\'été 1975 (soit quelques mois seulement après la fondation de l\'Internationale). Au siège des Fils du Feu, on en découvre encore plus : une carabine 22 longue, un fusil à canon scié, un revolver 7.65, des dagues, des cocktails Molotov\.... Les liens avec les organisations d\'extrémistes d\'extrême droite sont exposés. Quelques années plus tôt, la police de Los Angeles a développé d\'autres liens avec les Fils du Feu : la secte satanique de Charles Manson entretenait des contacts avec les Luciferiens français ! Pas plus tard qu\'en 1975, des délégués de l\'Internationale sont partis à Madrid pour signer des accords ultra-secrets avec\... Lopez Rega, ancien ministre de Juan Peron et chef des escadrons de la mort argentins meurtriers.
+
+Le magicien argentin
+
+Le rite initiatique du vaudou Umbanda est très mystérieux. Le vaudou sud- américain Umbanda combine des divinités africaines avec des éléments de la doctrine chrétienne : Iemauja, la déesse de la mer est Notre-Dame ; Oshala, le dieu suprême est Jésus ; Eshu représente le diable. On dit que le vaudou Umbanda a l\'Argentine dans son emprise en 1974.
+
+Le rite d\'initiation comprend un isolement de 21 jours au crépuscule d\'un temple, un tapis tissé servant de lit. Le 21ème jour, la cérémonie a lieu, sous la direction d\'un \" père de Dieu \".
+

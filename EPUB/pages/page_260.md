@@ -1,0 +1,11 @@
+
+Avant de terminer le 22e chapitre, je voudrais demander si quelqu\'un d\'autre souhaite prendre la parole. Le grand maître regarde autour de lui. Est-ce que je dirais quelque chose ? Non, il est temps de donner aux chefs des autres Ordres l\'occasion d\'honorer le grand maître de la Michaelite Chevaleresque Brothernite avec de grandes croix et titres. Déclarations d\'honneur que le Grand Maître accepte en remerciement. C\'est ainsi que s\'est conclu le 22e chapitre. Il était presque huit heures. La cérémonie était terminée. Les portes ont été ouvertes. A l\'extérieur, les délégations respectives posent devant les caméras. Ensuite, le vin d\'honneur est donné et les contacts sont aiguisés. Tout le monde est d\'accord. C\'était une belle cérémonie\".
+
+Je ne ressens toujours pas le besoin de devenir chevalier. Mais le culte m\'a touché. Des hommes et des femmes adultes qui promettent fidèlement à genoux à un Ordre et à son maître\.... Je ne pourrais pas le faire. Des hommes qui se disent alors chevaliers pompeux et, décorés de décorations, luttent solennellement contre le matérialisme pour faire prévaloir la spiritualité chez l\'homme. De telles cérémonies bizarres sont-elles essentielles au bon fonctionnement de notre société complexe ? Peut-être. Alors pourquoi je n\'en ressens pas le besoin ? Je dois arrêter de penser et me concentrer sur la route. J\'ai déjà pris cette rue deux fois. Cela aide. Au bout d\'un moment, la route de Bruxelles s\'ouvre à moi.
+
+Fontaine d\'honneur
+
+![Image](../media/file39.png){style="width:1.98611in;height:1.97222in"}
+
+Lorsque le Grand Visiteur de la Michaelite Chevaleresque Broaternite m\'a appelé pour prendre rendez-vous - \" le grand maître sera là aussi \" - j\'ai été assez surpris. Nous répondrons en toute honnêteté à toutes vos questions sur l\'histoire de l\'Ordre, dit-il. Courageux, pensai-je. Parce que leurs références historiques sont très discutables. Cet Ordre est aussi considéré comme totalement fantastique. Le seul Ordre de Saint-Michel reconnu est celui fondé en 1469 par le roi de France Louis XI, en contrepoint du prestigieux \"Ordre de la Toison d\'Or\". L\'Ordre de Saint- Michel est un ordre dynastique qui appartient historiquement à la Maison de France.
+

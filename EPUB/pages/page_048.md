@@ -1,0 +1,13 @@
+
+Certains, cependant, remontent beaucoup plus loin dans l\'obscurité du temps et adhèrent à l\'histoire de la création qui suit. Au début, il y avait Diane, la Grande Ténèbre, qui se divisait en deux forces opposées mais égales : le jour et la nuit. Diane, la lune, régnait sur la nuit, tandis que le jour devenait le domaine de son alter ego et de son frère, Lucifer, le soleil. Diana poursuivait constamment le soleil dans l\'espace, tombait amoureuse et le séduisait. Le fruit de cet amour fut une fille, Aradia ou Hérodiade, l\'archétype de l\'homme incarné par la suite.
+
+Non seulement la tradition chrétienne, mais aussi les légendes et les sagas des civilisations anciennes comme les Pictes ou les Celtes donnent aux Luciferiens actuels des indices sur leurs visions païennes, bien que celles-ci puissent varier d\'un groupe à l\'autre. Tous, cependant, visent à rassembler les connaissances perdues et à propager une nouvelle race humaine, l\'\" homo galacticus \", l\'homme qui, par la connaissance ultime, monte au Tout et prend finalement la place qu\'il a dû abandonner il y a des milliers d\'années aux mains d\'un Dieu despotique créé par les hommes.
+
+Dans la Bible luciférienne, la création de Dieu est vue comme suit : \"Et maintenant le revirement magique des peuples de la terre créa un pouvoir autonome qui devint le Dieu des hommes. (Il s\'agit de l\'époque où les magiciens sont devenus plus attentifs à eux-mêmes, à la forme, qu\'aux forces lucifériennes.) Cette énergie en mouvement, née de l\'homme, ne pouvait survivre que tant que les passions humaines la nourrissaient. Elle devint l\'excuse du comportement de l\'Ombre et fut définie comme \"Dieu Suprême\". Ainsi l\'homme a créé un dieu qui a satisfait son besoin. Il
+
+l\'appela Jéhovah et lui donna tout pouvoir sur les armées du pays des ténèbres. 20\... Et un monde nouveau surgit de l\'esprit de l\'homme entre les deux. L\'homme l\'appelait le \"Monde Supérieur\" et adorait en son nom les tables de la Nouvelle Morale. 21 .
+
+La condition pour regagner l\'étape divine tant convoitée est la recherche ultime du Moi, aussi appelé : la\'Voie Luciférienne\'. C\'est une aventure
+
+dans la connaissance intérieure, menant souvent à des endroits étranges où les démons, les gnomes, les lutins, les lutins, les elfes, les nixes et autres figures du monde souterrain règnent et travaillent. Au nom de la bête, 666, des rituels parfois horribles et sanglants sont accomplis, des invocations magiques sont faites, et les adorateurs entrent en contact avec le porteur de lumière, le dieu de la foudre, Lucifer. La Voie luciférienne est dangereuse et dure.
+

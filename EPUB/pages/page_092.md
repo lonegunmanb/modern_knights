@@ -1,0 +1,13 @@
+
+Oui\', soupire Monseigneur,\'que voulez-vous, l\'homme veut appartenir à une élite\'. Vanitas vanitorum ? Le grand maître acquiesce. Le Monseigneur, cependant, semble avoir été mis en place avec sa fonction de grand maître et fait un pacte avec la vanité humaine. Pour protéger les valeurs chrétiennes, \" Son Excellence de haute qualité \", \" Son Honorable Grand Maître \", Monseigneur Maurice De Vent n\'est que trop heureux de partager le rapport chevaleresque et nomme \" Chevaliers Huissiers et Dames de la Grande Croix de Justice \", \" Chevaliers et Dames du Grand Officier \", \" Chevaliers et Dames du Commandement \", \" Chevaliers et Dames du Justice \" et \" Chevaliers et Dames du Mérite \".
+
+La pensée œcuménique est une grande priorité, dit le grand maître. Il faut être chrétien. Que l\'on appartienne à l\'Église catholique romaine ou à d\'autres Églises, cela n\'a aucune importance. Il y a toutes sortes de chevaliers avec nous. Aussi des prêtres catholiques, des pasteurs protestants, des gens des partis politiques. Non, pas encore de ministres. Ils préfèrent s\'adapter à des commandes plus renommées, où des dîners chics sont organisés. Notre but est d\'aider les gens. Nous avons envoyé de l\'argent en Pologne. C\'est environ quelques dizaines de milliers de francs.
+
+Le Monseigneur remplit les verres une dernière fois. Il regarde sa montre. Bientôt au travail\', marmonne-t-il en toute neutralité. Il se fait tard. Le grand maître prononce ses dernières paroles : \" La chevalerie est une confrérie internationale, où les gens de toutes sortes peuvent se parler entre eux. A propos de tout, y compris la politique. Mais l\'ordre n\'est donc pas un parti politique et n\'est ni gauche ni droite. Bien que vous puissiez avoir des figures de droite dans l\'ordre, attirés par le caractère traditionnel et par la structure. Mais tout ce qui importe peu.
+
+Interlude I
+
+En 1981, le statut de l\'Eglise catholique-gallicaniste belge apparaît dans les annexes du Moniteur belge7- La nouvelle association à but non lucratif deviendra en quelque sorte la \"fabrique d\'église\" des Gallicains. Outre Mgr Truchemotte, alias patriarche Patrick Ier, et Mgr Maurice De Vent, primat de Belgique, José Bodart a également signé les nouveaux statuts. Il a été rapidement nommé administrateur et trésorier. Avec Bodart, nous entrons
+
+dans de nouveaux \"chemins de chevaliers\". Il représente l\'une des organisations templières les plus importantes et les plus importantes au monde. Les descendants du maître suprême Jacques de Molay, condamné au bûcher par le roi Philippe IV le Beau en 1314, sont loin d\'être morts. Au contraire\....
+

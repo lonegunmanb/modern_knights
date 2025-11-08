@@ -1,0 +1,11 @@
+
+Les \'parchemins\' sont en train d\'être récupérés. Des documents très officiels de l\'Ordre de Saint-Jean-Baptiste, de l\'Ordre Souverain et Militaire du Temple de Jérusalem, branche Zdrojewski, De Bruyn et de l\'Ordre de Saint-Antoine du Désert confirment son engagement.
+
+Mme Van H. montre du doigt le mur à droite de la grande fenêtre. C\'est le meilleur de tous \", dit-elle avec satisfaction. En effet, la lettre de noblesse écrite par l\'Ordre du Saint-Sauveur de Mont-Real est impressionnante. Des lettres gothiques, flanquées de figures chevaleresques aux yeux durs, décorent le document. Cet ordre est patronné par la maison de Mora y Aragon, vous savez, c\'est de là que vient notre reine. Mme Van H. est visiblement mise en place avec tant d\'honneur. Jusqu\'à récemment, elle était elle-même - \" J\'ai dû démissionner à cause de trop d\'activités \" - \" hospitalière \" pour cet Ordre. Elle se préoccupait de l\'effet caritatif - \" visiter les hôpitaux \". Cet ordre est principalement orienté vers l\'ésotérisme, mon cheval de bataille. A Liège, nous tenions des réunions mensuelles, où certains aspects ésotériques et certaines traditions alchimiques étaient toujours explorés en profondeur dans la tradition des Templiers. Plusieurs représentants d\'autres Ordres étaient présents : l\'Ordre Dynastique d\'Alibert, la Michaelite Broaternite, la Milice de
+
+Livonie, etc. Les membres de l\'Ordre Dynastique d\'Alibert, la Michaelite Broaternite, la Milice de Livonie étaient également présents. Tous ces Ordres ont une tradition templière, bien qu\'ils ne descendent pas des Templiers en tant que tels\".
+
+Mme Van H. se tait soudainement. Elle soupire. Notre grand exemple est Raoul Alibert de la Vallee, l\'homme qui a introduit les aspects ésotériques et en a inspiré beaucoup. Il est grand maître de l\'Ordre Dynastique d\'Alibert\".
+
+En plus de cette fonction, Raoul Alibert de la Vallee, décédé en 1986, a également été secrétaire-trésorier de la Fédération Internationale des Ordres de Chevalerie de Zappelli. Il a été assisté dans cette tâche par\..... Julien Origas. Il était alors, tout comme Origas, membre du Centre Templier d\'études historiques, philosophiques et ésotériques, également une construction de l\'Ordre Souverain et Militaire du Temple de Jérusalem de Zappelli. Comment une pièce de dix cents peut rouler\...
+

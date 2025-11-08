@@ -1,0 +1,13 @@
+
+L\'Ordre compte actuellement environ 10.000 chevaliers dans le monde entier. Elle entretient des relations diplomatiques avec de nombreux Etats et nomme des représentants ou délégués dans d\'autres pays et associations internationales.
+
+La plus petite \"principauté\" du monde a des sujets puissants. Beaucoup de cathohèques, de présidents et de rois actuels ou anciens ont été heureux de se joindre à la SMOM. Par exemple, les Habsbourg sont très bien représentés aux côtés de gens comme le roi Juan-Carlos d\'Espagne, l\'ancien président Valéry Giscard d\'Estaing de Franknjk ou l\'ancien président argentin Juan Peron. Des Amencans influents sont également membres de l\'Ordre. Quelques autres noms qui font appel à l\'imagination : l\'ancien secrétaire d\'État Alexander Haig, Lee Iacocca de Chrysler, le magnat du navire Spyros Skouras, le Barron Hilton de la chaîne hôtelière du même nom, le maire honoraire de New York Robert Wagner, et tant d\'autres.
+
+L\'histoire qui suit illustre le fait que l\'Ordre n\'a aucun intérêt à maintenir des contacts étroits avec les régimes dictatoriaux catholiques. Le 15 septembre 1984, le cardinal\* patron\* de la SMOM et sympathisant bien connu de l\'Opus Dei, le cardinal Sebastiano Baggio, célébra une messe de noces à Notre Dame de la Chapelle, au Sablon de Bruxelles. Cette église abrite la section belge de l\'Ordre. Baggio est venu de Rome par avion pour relier solennellement l\'archiduchesse Alexandra de Habsbourg, fille de Charles, à Hector Riesle dans la vraie vie. Le chœur Nativitas s\'est inspiré des œuvres de Purcell, Mozart et Beethoven. Parmi ceux qui étaient présents, il y avait tout le clan des Habsbourg. Cependant, il y avait quelque chose de particulier dans le mariage. La cérémonie a été évincée de la publicité. Après tout, le marié, Hector Riesle, était l\'ambassadeur de Pinochet au Saint-Siège. La Belgique pourrait manquer un lien direct avec le régime dictatorial du Chili. Mais Hector Riesle représente autre chose. En plus d\'être chevalier de la SMOM, il occupe également le poste de doyen
+
+du corps diplomatique accrédité auprès de l\'Ordre à Rome. Une fonction importante. C\'est ce qui explique la présence de Baggio 57 . On entend parfois des murmures : l\'Ordre souverain et militaire de Malte est un gouvernement mondial.
+
+Sacerdotium et empium Belgarum
+
+On ne s\'en douterait pas si on se tenait devant les murs gris-gris de l\'imposant hôtel de ville de la rue Souveraine à Ixelles, mais le numéro 69 abrite toujours la section belge de la glorieuse SMOM. Département, pas d\'ambassade, contrairement à beaucoup d\'autres pays occidentaux.
+

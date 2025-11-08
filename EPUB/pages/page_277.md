@@ -1,0 +1,11 @@
+
+Pour la gloire de Dieu
+
+![Image](../media/file44.png){style="width:2.01389in;height:1.95833in"}
+
+Quiconque est passé par là l\'admettra. L\'université est avant tout un établissement de formation. Ce ne sont pas seulement les séminaires ou les matières enseignées qui ont une influence importante sur le développement de la personnalité. Surtout ce qui se passe autour du purement pédagogique, les contacts que vous faites, la liberté, l\'indépendance, stimule le jeune étudiant inexpérimenté et naïf à réfléchir sur les grands mystères de la vie, sur qui il est et ce qu\'il veut réaliser. Ce sont des moments difficiles, mais qui en valent la peine.
+
+Au cours de l\'année académique 1959-1960, quelques jeunes étudiants de l\'Université catholique de Louvain, alors encore unitaire, ont été confrontés à un texte qui les influencerait fortement, inspirés par le geln catholique et issus de milieux très riches. Le texte a été écrit par le moine bénédictin Dom Marie-Gerard Lafond, fondateur de la \" Milice Sanctae Mariae \" et se lit comme suit : Nous croyons que les objectifs de la Chevalerie, la promotion de l\'ordre chrétien et la paix dans le Royaume du Christ, sont plus que jamais d\'actualité. Nous croyons que la lutte pour Dieu et les hommes est une véritable lutte chevaleresque de nos jours. C\'est la seule capable de prendre une position efficace contre le matérialisme caché et la violence révolutionnaire, dans tous les domaines où elle éclate et, d\'abord et avant tout, contre le spirituel. Une chevalerie comme unité de combat pour Dieu et contre le matérialisme, comme avant ! Ça ressemblait à quelque chose. Avec les enseignements de Dom Lafond à l\'esprit, la décision a été prise rapidement. Une chevalerie serait et devrait être fondée. Le nom : Ordre du Rouvre. Le chêne est un signe symbolique de liaison entre le ciel et la terre. Une structure hiérarchique a été développée, des fenêtres d\'initiation conçues et spécifiées pour les trois classes de l\'Ordre, écuyer, donner et enfin chevalier. Enfin, les initiateurs ont conçu une tenue adaptée.
+
+Ces initiateurs, en particulier Richard van Wyck et Jacques Jonet 14, pourront bientôt compter sur le soutien indispensable du recteur magnificus de l\'université, Mgr Van Waeyenberg.
+

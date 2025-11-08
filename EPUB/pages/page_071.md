@@ -1,0 +1,13 @@
+
+De cette façon, une énorme mutation biologique et spirituelle se produirait, qui devait finalement être la base d\'une \" nouvelle dynastie solaire \", remontant à la société des Hyperboréens.
+
+Hitler devait devenir ce messie et fonder un empire millénaire. Le peuple aryen garantirait la mutation biologique et spirituelle et deviendrait le peuple des dieux sur terre. C\'est cette illusion qui vivait dans l\'esprit d\'Eck Hart et dans la tête confuse des autres membres de la Thule Society.
+
+Hitler, un golem ? Un golem est une sorte d\'automate, un zombie, un être humain artificiel, contrôlé et manipulé par un magicien. Le magicien crée le golem et tire un pentacle magique sur son front. Mais si le golem peut effacer ce signe magique, la conjuration prend fin, le golem tourne, le magicien est étranglé et son âme volée. Le golem devient une figure délimitée avec un pouvoir incroyable. Il sème la mort et la vermine. Cela raconte une légende juive, enregistrée par un cabbaliste médiéval et des rabbins alchimistes. La Société Thulé a désigné Hitler comme un golem. Hitler a-t-il réussi à défaire les incantations magiques ? Selon la logique
+
+de la magie, tout comme les seigneurs de la Société de Thulé. Le fait est qu\'Hitler s\'est ensuite retourné contre la Société à plusieurs reprises et a finalement déclenché la Seconde Guerre mondiale.
+
+En 1912, un certain Theodor Fritsch (1852-1933) fonda à Berlin une chevalerie secrète qu\'il appela \"l\'Ordre du peuple germanique\". Fritsch s\'est bombardé comme grand maître et le symbole du nouvel Ordre est devenu une croix gammée. Pendant la Première Guerre mondiale, les activités de l\'Ordre se déroulent à un rythme lent. En décembre 1917, le grand maître ordonna au baron Rudolf von Sebottendorff de fonder une société secrète en Bavière, selon l\'ordre. Ce personnage étrange, familier dans le monde ésotérique et maître d\'un ordre Rose-Croix, fonde la Société Thulé à Munich en janvier 1918. À la fin de l\'année, elle comptait environ 1500 membres, dont des soldats, des aristocrates, des hauts fonctionnaires et des personnes exerçant des professions libérales. Bref, une élite. Outre Dietrich Eckhart et son ami le docteur Paul Tafel, le très puissant prince Gustav Franz Maria von Thurn et Taxis était également membre de la Société de Thulé. En 1919, il devait être exécuté avec huit autres membres thuléens par l\'\"Armée rouge de la République des Soviétiques bavarois\". Dès lors,
+
+les positions de la Société de Thulé se radicalisent : le peuple allemand a un besoin urgent de retrouver sa dignité initiale et la lutte contre les juifs et les communistes doit être menée avec vigueur.
+

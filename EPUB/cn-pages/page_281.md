@@ -1,0 +1,5 @@
+1972年，反攻开始了。独立人士与基督徒干部政治中心（Centre Politique des Independants et Cadres Chrétiens，简称 CEPIC）成立并被纳入 CPS。自1974年起，这片“trèfle”（“苜蓿”象征）才真正开始高效运转。骑士让·布雷德尔（Jean Breydel）出任 CEPIC 秘书长，Paul Vankerkhoven（保罗·范克克霍芬）任副主席，Edmond Nerincx（埃德蒙·内林克斯）任总行政主管，而男爵 Benoit de Bonvoisin（伯努瓦·德·邦瓦赞）任司库。这一切都在首任主席 André Saint-Rémy 32（安德烈·圣-雷米）——在“王位问题”期间列奥波德三世（Léopold III）的热忱拥护者——的领导下完成。自1977年起，Paul Vanden Boeynants（保罗·范登·布扬南茨）成为主席。CPS 内部的权力斗争由此可以开始。为此，CEPIC 在其纲领中列入了一些迫切诉求：反工会取向、捍卫私人主动性与自由企业、以及抵制国家干预。当然，比利时国家的统一亦具有至关重要的意义。
+
+CEPIC 的行动取得了成果。旗帜性人物 Paul Vanden Boeynants 先后出任：国防与布鲁塞尔事务部长（1974）、副首相兼国防部长（1977）、首相兼国防部长（1978）、副首相兼国防部长（1979），并最终在1979至1981年间出任 CPS 全国主席。一份漂亮的履历。除此之外，Paul Vanden Boeynants 也被列入……
+
+20世纪80年代初，发生了一件值得注意的事。CEPIC 崩塌，甚至被解散，缘于其领导层卷入若干声名不佳的政治与金融丑闻。这看起来像是一场猎巫行动——一次对 CPS 强硬右翼的有组织攻击。Edmond Nerincx 与男爵 Benoit de Bonvoisin 双双遭到抹黑。媒体的披露（包括一份比利时国家安全局 Sûreté de l'Etat 故意外泄的备忘录）指称二人与极右翼存在关系，并且就 Nerincx 而言，还涉及其作为多个信息/情报服务（如 CIA 33）的信托角色。男爵 Benoit de Bonvoisin 亦于1984年因协助欺诈性破产被判有罪。这也是前 Ordre du Rouvre（“Rouvre（橡树）勋章”）大团长 Richard Van Wyck（理查德·范·威克）仍须在法庭上作答的指控。
